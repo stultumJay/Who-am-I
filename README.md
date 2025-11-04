@@ -27,7 +27,7 @@ I am a fast learner and adaptive technologist who is highly fascinated about how
 - 👨‍💻 Strong problem-solving mindset  
 - 🤝 Effective team collaborator
 - 📚 Lifelong learner with a commitment to continuous improvement  
-- 📈 Academic Excellence (Dean’s Lister – 2024)  
+- 📈 Academic Excellence  
 - 🧰 Dual NCII Certifications:
   - Electrical Installation and Maintenance  
   - Computer Systems Servicing  
